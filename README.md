@@ -56,6 +56,6 @@ I am comfortable with technical trials, feedback, revisions, and learning produc
 
 ## Contact
 
-**Email:** nicolasdanilo890@gmail.com  
+**Email:** loxoesp327@gmail.com
 **Location:** Quito, Ecuador  
 **GitHub:** https://github.com/vandaaniels
